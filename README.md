@@ -18,5 +18,5 @@
 ---
 
 📫 **Contact Me**  
-Email: your.email@example.com  
+Email: Jamesmateo16@gmail.com
 LinkedIn: [Your LinkedIn](https://linkedin.com/in/yourname)
