@@ -19,4 +19,4 @@
 
 📫 **Contact Me**  
 Email: Jamesmateo16@gmail.com
-LinkedIn: [Your LinkedIn](https://linkedin.com/in/yourname)
+LinkedIn:(www.linkedin.com/in/james-mateo-28b4a7378)
